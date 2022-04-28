@@ -1,7 +1,8 @@
-## Tong Poho Bere Bintang!
+## Tong Poho Bere Bintang
 >
 Nama Athour : [**FazryS**](https://github.com/FazryS)
 > 
+```
 ```
 >
 1. WhatsApp : [**WhatsApp**](https://wa.me/6283109115523)
