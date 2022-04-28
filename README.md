@@ -1,5 +1,4 @@
-## Tong Poho Bere Bintang :V
->
+## Tong Poho Bere Bintang!
 >
 Nama Athour : [**FazryS**](https://github.com/FazryS)
 > 
